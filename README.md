@@ -1,0 +1,2 @@
+# S-M-Aslam-Uddin-Ahmed
+I am an expert graphic designer and I can make a logo, background removing, vector, shadow creating, etc. Then I can also make a good video graphic design. Although I am also teaching my students freelancing out of my institution for their self-employment, I am teaching as a Lecturer of English at Sadhanpur High School and College. I am an expert photo editor. I can also draw a logo designer. I usually can make business cards. Next, I can design a banner and postcard.
